@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Swedish
 - 💞️ I’m looking to collaborate on *secret*
 - 📫 How to reach me: @xkta24
-- 😄 Pronouns: ...
+- 😄 Pronouns: *secret*
 - ⚡ Fun fact: ...
 
 <!---
