@@ -6,8 +6,8 @@
 - 😄 Pronouns: *secret*
 - ⚡ Fun fact: i like football and JAVA
 - 27.04.24
-- 13💯10😕
-- 30 May
+- 16💯10😕
+- 1 Jun
 <!---
 Xkta24/Xkta24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
